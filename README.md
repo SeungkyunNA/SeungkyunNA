@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @SeungkyunNA
-- 👀 I’m interested in JAVA / JS 
+- 👀 I’m interested in JAVA / JS / Music
 - 🌱 I’m currently learning JAVA / JS
 - 📫 How to reach me is Email n.jake270705@gmail.com 
 
